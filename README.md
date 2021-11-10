@@ -1,2 +1,2 @@
 # SoloLeveling
-Solo leveling
+Solo leveling fans make novels and comics into metauniverse NFT. Solo Leveling (나 혼자만 레벨업, Na Honjaman Lebel-eob) known as I Level Up Alone in English is a Korean novel written by Chu-Gong, It was serialized in Papyrus and later in KakaoPage and concluded with 14 volumes and 270 chapters. In April 13, 2018, A webtoon serialization started in Korean mobile site kakaopage draw by artists hyeon – gun and Jang sung rak.nft is used for gamefi games, NFT card purchase, diffuse exhibition ticket destruction and fan reading tokens.
